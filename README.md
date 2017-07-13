@@ -1,0 +1,2 @@
+# salsa
+green knight or 5 dimensional space field and the 5x5 matrix - "Happening" happening edge of real and data accelerating pushpull human consciousness inout and machine data construction structure frame robots ....how to create a theory of human winding shielding breakdance scatter now here nowhere hidden plane field site sight map chasing loophole cybernetics for nature psych vs computer robots AI
